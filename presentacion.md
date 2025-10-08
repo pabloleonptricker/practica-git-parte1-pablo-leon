@@ -1,0 +1,1 @@
+Me llamo Pablo, aunque me gusta que lo escriban con V: "Pavlo" solia ser acrobata, hasta que me lesione y empece en el mundo de los jueguitos chinos, la informatica y hacer todo lo que diga la parienta.
